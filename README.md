@@ -1,3 +1,3 @@
-# hello-world
+Github profiles
 
-I'm a data science enthusiast
+https://github.com/shaz13?tab=repositories
