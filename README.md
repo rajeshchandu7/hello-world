@@ -1,2 +1,3 @@
 # hello-world
-My work
+
+I'm a data science enthusiast
