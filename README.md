@@ -23,3 +23,9 @@ Interesting Articles
 Google AI camera
 
 https://www.linkedin.com/feed/update/urn:li:activity:6462719714396336128
+
+
+INSPIRING
+
+https://www.linkedin.com/feed/update/urn:li:activity:6463102189916258304
+
